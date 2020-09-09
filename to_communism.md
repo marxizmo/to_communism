@@ -1,7 +1,11 @@
+**(Новая версия статьи доступна по ссылке: [Ноомарксизм](https://github.com/marxizmo/noomarxizm/blob/master/noomarxizm.md))**
+
 # Переход к коммунизму
 
 Александр Мещеряков
+
 Санкт-Петербург, 2020
+
 alexvmesh@gmail.com
 
 Версия: 0.1
